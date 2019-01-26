@@ -1,1 +1,2 @@
 # HW-Wireframe
+I'm submitting this one because I did it before I had the solution. With the other homework I was using the solution too much so this is more representative of my work. I also had trouble when we did this similar activity in class so I wanted to focus on this one.
